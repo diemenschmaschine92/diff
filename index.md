@@ -1,3 +1,6 @@
 Colonel Kurtz
 The horror
-Eskimo pie
+Bugs Life
+Film
+The horror
+Bugs Life
